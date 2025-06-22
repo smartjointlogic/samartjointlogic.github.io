@@ -1,1 +1,1 @@
-# samartjointlogic.github.io
+# smartjointlogic.online
